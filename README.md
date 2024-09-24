@@ -1,1 +1,1 @@
-Exercícios PI-2024-72025
+Exercícios PI-2024/2025
